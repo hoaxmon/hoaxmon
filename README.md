@@ -10,9 +10,10 @@
             $\text{\color{#d99b3f} sonn͟e͟t͟  ༝༝༝ 18ʸᵒ}$<br>
             $\text{\color{#bf6e22} she ₒᵣ he ︴ lesbian}$<br>
             $\text{\color{#8f3907} cluster-b + dissociative }$<br>
-            $\text{\color{#631b03} c+h en͟c͟ always ༝ semiactive }$<br>
-            <br>
-            $\text{\color{#400f05}﴾ antisocial . iwcare ﴿‏}$<br>
+            $\text{\color{#75290b} c+h en͟c͟ always ༝ semiactive }$<br>
+              <br>
+            $\text{\color{#2e343e}─────────────────────────}$<br>
+            $\text{\color{#6b1b09} ..but I will wait for you.}$<br>
            </p>
       </td>
     </tr>
