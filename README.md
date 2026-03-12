@@ -2,6 +2,7 @@
   <table>
     <tr>
       <td>
+        </p>
             <div align="center">
             $\text{\color{#f6c77d} The dawn waits for no one.}$<br>
             $\text{\color{#2e343e}─────────────────────────}$<br>
@@ -10,9 +11,9 @@
             $\text{\color{#bf6e22} she ₒᵣ he ︴ lesbian}$<br>
             $\text{\color{#8f3907} cluster-b + dissociative }$<br>
             $\text{\color{#631b03} c+h en͟c͟ always ༝ semiactive }$<br>
+            <br>
             $\text{\color{#400f05}﴾ antisocial . iwcare ﴿‏}$<br>
            </p>
-         <br>
       </td>
     </tr>
   </table>
