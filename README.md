@@ -14,6 +14,8 @@
               <br>
             $\text{\color{#2e343e}─────────────────────────}$<br>
             $\text{\color{#6b1b09} ..but I will wait for you.}$<br>
+<br>
+              $\text{\color{#6b1b09}꒰}$   <a href="https://sonnet.atabook.org/">ata</a>     <a href="https://pronouns.cc/@sonnet">prnscc</a>   $\text{\color{#6b1b09}꒱}$ 
            </p>
       </td>
     </tr>
